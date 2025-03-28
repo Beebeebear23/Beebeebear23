@@ -1,4 +1,4 @@
-- Hi, I’m @Beebeebear23
+- Hi, I’m @Bites_the_gast
 - I’m interested in GameDev
 - How to reach me denis.syrovenko@gmail.com
 - I'm russian, my English isn't good.
